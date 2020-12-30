@@ -1,1 +1,1 @@
-# Project-26-Recipe
+This is my Chocolate cake recipe. The food is vegetarian. And requires minimum effort.
